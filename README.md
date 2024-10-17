@@ -1,0 +1,2 @@
+# 085197773321-Rumah-DP-rendah-5-juta-di-kawasan-Nagreg-Rumah-murah-DP-ringan-5-juta-di-Nagreg
+Selain harga yang terjangkau, perumahan di Nagreg ini juga dilengkapi dengan berbagai fasilitas yang bagus penunjang seperti area hijau, taman bermain, dan akses dekat ke fasilitas umum seperti sekolah, pasar, dan pusat perbelanjaan.   https://www.edocr.com/v/pvnxwv9p/weallneedsomeonetohold1/085197773321-perumahan-dp-5-juta-dekat-nagreg-band
